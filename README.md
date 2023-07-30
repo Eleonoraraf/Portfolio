@@ -1,7 +1,7 @@
 # МОЙ ПОРТРЕТ #
 ## «Резюме» ##
 
-![Картинка](https://vk.com/elchik_mimimi?z=photo212504287_457272276%2Fphotos212504287)
+![Картинка](https://sun9-71.userapi.com/impg/DuErVu3J5jCfDyNXjHaw5pg1aCWT6RiR8a0hRQ/3z7hlzsLIg8.jpg?size=607x1080&quality=95&sign=b1e59e0b96096d277f8c72ef06c45383&type=album)
 
 Ряховская Элеонора Александровна
 
